@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/lohithvanga](https://github.com/lohithvanga)
 
-- 📫 How to reach me **lohithsunny19@gmail.com**
+- 📫 How to reach me **lohithvanga1910@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
